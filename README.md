@@ -1,1 +1,1 @@
-# Github
+Repozitáø jsem si založil, abych mohl úspìšnì projít pøedmìtem, hádám.
